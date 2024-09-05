@@ -8,4 +8,6 @@
 
 ## This is where quotes are going to start
 
-"Assassumption is the mother of all fuck-ups." - Steven Seagal
+1. “Be yourself; everyone else is already taken.” ― Oscar Wilde
+2. "Assumption is the mother of all fuck-ups." - Steven Seagal
+3. 
